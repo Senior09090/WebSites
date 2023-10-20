@@ -3,3 +3,4 @@
 https://azagtools.kz/
 https://cntl.kz/
 https://vendome.kz/
+https://createkasia.kz/
